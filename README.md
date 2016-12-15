@@ -17,9 +17,9 @@ http://tergar.org/events/exploring-the-nature-of-mind-heart-advice-on-the-path-o
 <b> 3. Авиабилеты </b>
 -----------------------
 
-aviasales.ru
+http://aviasales.ru
 
-onetwotrip.ru
+http://onetwotrip.ru
 
 Примерная стоимость 35-40 тыс. 
 
