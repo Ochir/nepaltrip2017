@@ -1,7 +1,5 @@
-# Поездка в Непал на учения по 
+# Поездка в Непал 
 
-Здесь основные моменты по поездке в Непал
-на учения 5-8 марта. 
 
 http://tergar.org/events/exploring-the-nature-of-mind-heart-advice-on-the-path-of-awakening/
 
@@ -9,9 +7,9 @@ http://tergar.org/events/exploring-the-nature-of-mind-heart-advice-on-the-path-o
 <b> 1. Даты поездки </b>
 
 
-<b>2. Виза 
+<b>2. Виза </b>
 
-стоит 30$, оформляется в аэропорту</b>
+стоит 30$, оформляется в аэропорту
 
 <b> 3. Авиабилеты </b>
 
