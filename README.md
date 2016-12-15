@@ -7,6 +7,8 @@ http://tergar.org/events/exploring-the-nature-of-mind-heart-advice-on-the-path-o
 <b> 1. Даты поездки </b>
 -------------------------
 
+Учения 5-8 марта. 
+
 <b>2. Виза </b>
 ----------------
 
