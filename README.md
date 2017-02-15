@@ -42,6 +42,13 @@ Airarabia - дешевле, но похуже, еда в самолете ужа
 я тоже уже
 Ната сказала, что самый близкий к Тергару гестхауз - Karna Lekshey Ling, он есть в списке
 
+Из других вариантов поблизости:
+
+-Choice Hotels - дешево
+
+-Swayambhu View Guest House - русские владельцы
+
+-Swayambhu Hotels & Apartments- Sitapaila 
 
 
 <b>5. Еда</b>
